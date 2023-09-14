@@ -1,1 +1,15 @@
 OEIS A008483
+
+taskset -p 30233
+ pid 30233's current affinity mask: ff
+ # keep an eye on binder
+ ps -eL
+ # core
+ ps -eo pid,sgi_p,cmd --sort sgi_p
+ # taskset
+ procfs
+ bitbake
+ AGM-114 Hellfire
+ # kill with AGM-114 Hellfire
+ echo 0 > /sys/devices/system/cpu/cpu0/online
+ ... Hardware  : MT6762V/WR
