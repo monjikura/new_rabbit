@@ -5,3 +5,8 @@
 
  # diamond OPc activated ... await bus ...
 
+ sub END {print "RUNS\n"}
+ die "TESTING"
+
+ # raising Lazarus
+
