@@ -15,11 +15,14 @@
 
  func landing() () {
 
+
      tar_land(get) != (rune[]*3 stay(flying))
 
  }
 
  func main() {
+
+      Aristotle_Mistake();
 
  }
 
