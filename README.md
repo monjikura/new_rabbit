@@ -1,7 +1,8 @@
 # ElixirRabbit
 
 **TODO: Add description**
-
+rabbit fever link:
+https://youtu.be/jyAExcvS47A?si=6OTIYvMYHkRJECBN
 ## Installation
 
 If [available in Hex](https://hex.pm/docs/publish), the package can be installed
