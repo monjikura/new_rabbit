@@ -1,0 +1,10 @@
+
+ protobuf
+
+ option = "com.girl.brashcrab"
+ option = "000004"
+
+ fos.mergeFrom {
+
+     instance != generator 
+ }
