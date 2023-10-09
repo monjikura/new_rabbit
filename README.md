@@ -1,4 +1,5 @@
 # ElixirRabbit
+/data/data/com.termux/files/home/Ghost/Mitrokhin_Borodin/new_rabbit/Belavkin/orange_hanami/son_0_p*
 
 **TODO: Add description**
 rabbit fever link:
