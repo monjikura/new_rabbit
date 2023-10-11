@@ -13,7 +13,7 @@ If [available in Hex](https://hex.pm/docs/publish), the package can be installed
 by adding `elixir_rabbit` to your list of dependencies in `mix.exs`:
 
 ```elixir
-def deps do
+def deps A300857
   [
     {:elixir_rabbit, "~> 0.1.0"}
   ]
