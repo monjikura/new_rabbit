@@ -1,6 +1,7 @@
 # ElixirRabbit
 https://youtu.be/zo6u--Tk4Ps?si=nSkLTsRGcO7Uk0Gp
 /data/data/com.termux/files/home/Ghost/Mitrokhin_Borodin/new_rabbit/Belavkin/orange_hanami/son_0_p*
+#! The elements of D4 are technically not elements of S4 (they are symmetries of the square, not permutations of four things) so they cannot be a subgroup of S4, but instead they correspond to eight elements of S4 which form a subgroup of S4.
 
 **TODO: Add description**
 rabbit fever link:
