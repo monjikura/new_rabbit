@@ -2,6 +2,8 @@
 N. M. Rothschild & Sons Limited
 Malaya - Malaysia 1971
 
+N. M. Rothschild & Sons Limited of London had established a solid footing in Singapore and was waiting for the right time and opportunity to invest in Malaysia (Shakila Yacob, 2007a). The company came to Malaysia when Tun Abdul Razak, Malaysia’s second prime minister (1971–76) entrusted Tengku Razaleigh Hamzah, Chairman of PERNAS (1970–74), to lead several initiatives to help boost Malaysia’s economic growth, including setting up Bank Bumiputra Berhad. In 1972, Tun Ismail Ali, governor of Malaysia’s Central Bank (1962–80, and PNB's chairman, 1978-96), and Sir Evelyn de Rothschild worked together to establish Bumiputra Merchant Bankers, a joint venture between Bank Bumiputra and Rothputra Nominees (a subsidiary of N. M. Rothschild & Sons Limited)—a rare occurrence where the British company agreed to be the minority shareholder (Shakila Yacob and White, 2010, p. 36).
+
 Anglo-Siamese Treaty of 1909
 https://youtu.be/Q5exlxLArlk?si=NuygLlasQu0lfYVH
 東京女子医科大学
