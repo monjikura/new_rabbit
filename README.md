@@ -4,7 +4,7 @@ Malaya - Malaysia 1971
 
 Sir Basil Zaharoff
 Orchard Park
-
+https://biblioasia.nlb.gov.sg/vol-11/issue-4/jan-mar-2016/lights-singapore-roland-st-john-braddell/
 https://en.m.wikipedia.org/wiki/Scomi_Precision_Engineering_nuclear_scandal
 
 https://en.m.wikipedia.org/wiki/Free_Arabian_Legion
