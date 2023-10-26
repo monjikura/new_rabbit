@@ -5,6 +5,7 @@ Malaya - Malaysia 1971
 
 1954 National Service riots
 { Fajar 8888 }
+Paris of Malaya 1936 Balfour
 
 Sir Basil Zaharoff
 Orchard Park
