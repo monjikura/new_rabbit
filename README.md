@@ -7,6 +7,9 @@ Malaya - Malaysia 1971
 
 Raja Aziz Addruse "casus belli"
 
+durian "Singapura" specie Rozanna
+https://oeis.org/A340122
+
 https://youtu.be/uAu-9zz_mQ8?si=3XWa2MuZX_Ar6d4u
 
 1954 National Service riots
