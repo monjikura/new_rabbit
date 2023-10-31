@@ -12,6 +12,9 @@ https://oeis.org/A340122
 William Woodville Rockhill
 Article Talk - Shanghai 1940s
 
+Meeting of the Malay Congress held between March 1 and 4, 1946, at the Sultan Sulaiman Club in Kuala Lumpur. The congress was attended by 39 Malay organisations. 
+
+
 https://youtu.be/uAu-9zz_mQ8?si=3XWa2MuZX_Ar6d4u
 
 1954 National Service riots
