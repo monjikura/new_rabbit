@@ -5,6 +5,11 @@ Malaya - Malaysia 1971
 1935 train de-rusty!
 我要你的内裤
 
+Abstract :
+Kuwait’s criminal court has put an end to the largest money laundering case by ruling the family and its expatriates to 10 years in prison.
+
+According to a report from Al Qabas newspaper, the court proceedings in Kuwait have sentenced a member of the ruling family, his partner, and two expatriates to 10 years imprisonment while the lawyer received a 7-year sentence, in the Malaysian Fund case, the largest money laundering case in the country’s history.
+
 Raja Aziz Addruse "casus belli"
 
 durian "Singapura" specie Rozanna
