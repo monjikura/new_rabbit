@@ -6,6 +6,9 @@ Malaya - Malaysia 1971
 我要你的内裤
 ( in 1928 British Malaya, our per capita per head is better than Japan )
 
+November 10 at 9:05 AM
+tandas ye' { Turki }
+
 Abstract :
 Kuwait’s criminal court has put an end to the largest money laundering case by ruling the family and its expatriates to 10 years in prison.
 
