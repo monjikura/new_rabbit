@@ -12,6 +12,13 @@ According to a report from Al Qabas newspaper, the court proceedings in Kuwait h
 
 Raja Aziz Addruse "casus belli"
 
+Article 13.
+(1)No person shall be deprived of property save in accordance with law. (2)No law shall provide for the compulsory acquisition or use of property without adequate compensation.
+0003
+0013
+0122
+
+
 durian "Singapura" specie Rozanna
 https://oeis.org/A340122
 William Woodville Rockhill
