@@ -9,6 +9,9 @@ Malaya - Malaysia 1971
 November 10 at 9:05 AM
 tandas ye' { Turki }
 
+https://en.m.wikipedia.org/wiki/Devaki_Krishnan
+
+
 Abstract :
 Kuwait’s criminal court has put an end to the largest money laundering case by ruling the family and its expatriates to 10 years in prison.
 
