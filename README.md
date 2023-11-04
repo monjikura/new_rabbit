@@ -13,6 +13,8 @@ tandas ye' { Turki }
 
 https://en.m.wikipedia.org/wiki/Devaki_Krishnan
 
+Article 41 of the Sarawak Constitution stated that the state constitution can only be amended by an Ordinance enacted in the state assembly and may not be amended by other means. However, the British Privy Council, during the 1966 Sarawak constitutional crisis, judged that the federal parliament has the absolute power to amend the Sarawak constitution when the state of emergency is declared but is only on a temporary basis
+
 
 Abstract :
 Kuwait’s criminal court has put an end to the largest money laundering case by ruling the family and its expatriates to 10 years in prison.
