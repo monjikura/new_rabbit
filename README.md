@@ -11,6 +11,8 @@ https://my.ambafrance.org/France-and-Perak-The-Historic-Links
 November 10 at 9:05 AM
 tandas ye' { Turki }
 
+Aman Shah, then 25, gained notoriety as the country's "one cent thief" in 1990 when he was working at the Hock Hua Bank in Jalan Raja Laut. A computer expert, he managed customer accounts and used a fund transfer system to deduct one cent from every account until he amassed RM4. 1 million.
+
 https://en.m.wikipedia.org/wiki/Devaki_Krishnan
 
 Article 41 of the Sarawak Constitution stated that the state constitution can only be amended by an Ordinance enacted in the state assembly and may not be amended by other means. However, the British Privy Council, during the 1966 Sarawak constitutional crisis, judged that the federal parliament has the absolute power to amend the Sarawak constitution when the state of emergency is declared but is only on a temporary basis
