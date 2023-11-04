@@ -8,6 +8,8 @@ Malaya - Malaysia 1971
 
 https://my.ambafrance.org/France-and-Perak-The-Historic-Links
 
+https://api.parliament.uk/historic-hansard/commons/1851/jul/10/borneo-sir-james-brooke
+
 November 10 at 9:05 AM
 tandas ye' { Turki }
 
