@@ -15,6 +15,10 @@ tandas ye' { Turki }
 
 https://www.bloomberg.com/news/features/2021-11-28/africa-s-biggest-data-leak-reveals-china-money-role-in-kabila-s-congo-looting
 
+cofr...May 26 Congo Affair 1964
+Tung Chi-Ping, Cultural Attache,
+Burundi Station, Red China, Congo
+
 Aman Shah, then 25, gained notoriety as the country's "one cent thief" in 1990 when he was working at the Hock Hua Bank in Jalan Raja Laut. A computer expert, he managed customer accounts and used a fund transfer system to deduct one cent from every account until he amassed RM4. 1 million.
 
 https://en.m.wikipedia.org/wiki/Devaki_Krishnan
