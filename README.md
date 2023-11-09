@@ -8,7 +8,7 @@ Malaya - Malaysia 1971
 
 https://my.ambafrance.org/France-and-Perak-The-Historic-Links
 
-Jilat Mastura, Enak Ye...
+Jilat Mastura, Enak Ye...سن الثانية
 
 https://en.m.wikipedia.org/wiki/Batak_Rabit 1877 - 1954
 UMNO-PMIP
