@@ -12,6 +12,8 @@ Jilat Mastura, Enak Ye...سن الثانية
 1321 reasons why Shia ...
 The name Hyderabad means "Haydar's city" or "lion city", from haydar 'lion' and ābād 'city', after Caliph Ali Ibn Abi Talib, also known as Haydar because of his lion-like valour in battle ( not original )
 
+https://en.m.wikipedia.org/wiki/Wang_Puchen
+
 https://en.m.wikipedia.org/wiki/Batak_Rabit 1877 - 1954
 UMNO-PMIP
 https://youtu.be/j9laobldPfU?si=uUuINx5QGz_lwOZO
