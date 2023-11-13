@@ -12,6 +12,10 @@ https://my.ambafrance.org/France-and-Perak-The-Historic-Links
 
 https://www.elaw.my/JE/01/JE_2021_38.html
 
+Article 11.
+
+(1)Every person has the right to profess and practise his religion and, subject to Clause (4), to propagate it. (2)No person shall be compelled to pay any tax the proceeds of which are specially allocated in whole or in part for the purposes of a religion other than his own.
+
 
 Jilat Mastura, Enak Ye...سن الثانية
 1321 reasons why Shia ...
