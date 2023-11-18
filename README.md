@@ -6,6 +6,8 @@ Malaya - Malaysia 1971
 我要你的内裤
 ( in 1928 British Malaya, our per capita per head is better than Japan )
 
+https://en.m.wikipedia.org/wiki/Foo_Choo_Choon
+
 Pubic Qantas Augustus Ceasar
 -:: Jewish History
 Earthquake Saves Jews (1430)
