@@ -7,6 +7,9 @@ Malaya - Malaysia 1971
 ( in 1928 British Malaya, our per capita per head is better than Japan )
 
 Pubic Qantas Augustus Ceasar
+-:: Jewish History
+Earthquake Saves Jews (1430)
+The church and the government of Rome set Wednesday, March 6, 1430, as the day when all the Jews of Rome must convert or face death. On that day a great earthquake shook Rome and many of the archbishops and priests who conceived the decree were killed. Following the earthquake, Pope Martin V annulled the decree.
 
 https://en.m.wikipedia.org/wiki/Jakob_Fugger
 
