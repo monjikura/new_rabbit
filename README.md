@@ -7,6 +7,7 @@ Malaya - Malaysia 1971
 ( in 1928 British Malaya, our per capita per head is better than Japan )
 
 https://en.m.wikipedia.org/wiki/Foo_Choo_Choon
+( https://www.christies.com/en/lot/lot-5272685 )
 
 Pubic Qantas Augustus Ceasar
 -:: Jewish History
