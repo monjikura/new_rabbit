@@ -6,6 +6,10 @@ Malaya - Malaysia 1971
 我要你的内裤
 ( in 1928 British Malaya, our per capita per head is better than Japan )
 
+Article 208 Indian Constitution 1949
+(1) A House of the Legislature of a State may make rules for regulating, subject to the provisions of this Constitution, its procedure1*** and the conduct of its business 1031 / discovery
+( exculpatory in toto )
+
 https://en.m.wikipedia.org/wiki/Foo_Choo_Choon
 ( https://www.christies.com/en/lot/lot-5272685 )
 
