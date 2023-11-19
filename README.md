@@ -1,4 +1,8 @@
 # ElixirRabbit
+Belachan ( Cadmium ) Research
+( At Your Own Risk )
+https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
+
 N. M. Rothschild & Sons Limited
 Malaya - Malaysia 1971
 民兵が C で4は
