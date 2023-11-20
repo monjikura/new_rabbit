@@ -3,6 +3,10 @@ Belachan ( Cadmium ) Research
 ( At Your Own Risk )
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
+Tengku Razaleigh drafted the Petroleum Development Act together with his associates in secret, as instructed by Tun Razak, and to be completed before the 1974 Malaysian general election. Rahman Ya'kub then telephoned Tengku Razaleigh to ask about the terms offered by the Malaysian federal government. Tengku Razaleigh then told Rahman regarding abolishment of the concession system. Meanwhile, 5% oil royalty will be given to the respective oil-producing states. Rahman agreed with the deal.[16]
+
+In 1974, the Petroleum Development Act was tabled in parliament and approved. Petronas was incorporated on 17 August 1974, and Tengku Razaleigh became its inaugural chairman.
+
 N. M. Rothschild & Sons Limited
 Malaya - Malaysia 1971
 民兵が C で4は
