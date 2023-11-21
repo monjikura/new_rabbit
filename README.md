@@ -3,6 +3,9 @@ Belachan ( Cadmium ) Research
 ( At Your Own Risk )
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
+Merry Christmas Shanghai 72
+- https://en.m.wikipedia.org/wiki/Shanghai_massacre#:~:text=The%20Shanghai%20massacre%20of%2012,conservative%20factions%20in%20the%20Kuomintang%20
+  
 Shin Oto-san:
 ... Another known Japanese doctor was Takeshiro Nishimura who opened his clinic in Singapore in 1902 and he became notable for treating Malay royalty. Nishimura became president of the Japanese Association in 1934 (Shimizu 1997;Shimizu and Hirakawa 1999). 2 Research thus far has not uncovered any association between the Andō brothers and the prostitution-linked medical practice characteristic of earlier Japanese doctors who had migrated to Malaya. ...
 
