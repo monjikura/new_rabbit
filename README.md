@@ -6,7 +6,7 @@ https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
 
-Merry Christmas Shanghai 72
+Merry Christmas Shanghai 72 光复强奸
 - https://en.m.wikipedia.org/wiki/Shanghai_massacre#:~:text=The%20Shanghai%20massacre%20of%2012,conservative%20factions%20in%20the%20Kuomintang%20
   
 Shin Oto-san:
