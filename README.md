@@ -3,6 +3,9 @@ Belachan ( Cadmium ) Research
 ( At Your Own Risk )
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
+Shin Oto-san:
+... Another known Japanese doctor was Takeshiro Nishimura who opened his clinic in Singapore in 1902 and he became notable for treating Malay royalty. Nishimura became president of the Japanese Association in 1934 (Shimizu 1997;Shimizu and Hirakawa 1999). 2 Research thus far has not uncovered any association between the Andō brothers and the prostitution-linked medical practice characteristic of earlier Japanese doctors who had migrated to Malaya. ...
+
 Tengku Razaleigh drafted the Petroleum Development Act together with his associates in secret, as instructed by Tun Razak, and to be completed before the 1974 Malaysian general election. Rahman Ya'kub then telephoned Tengku Razaleigh to ask about the terms offered by the Malaysian federal government. Tengku Razaleigh then told Rahman regarding abolishment of the concession system. Meanwhile, 5% oil royalty will be given to the respective oil-producing states. Rahman agreed with the deal.[16]
 
 In 1974, the Petroleum Development Act was tabled in parliament and approved. Petronas was incorporated on 17 August 1974, and Tengku Razaleigh became its inaugural chairman.
