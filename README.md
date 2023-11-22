@@ -10,7 +10,8 @@ Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
 
 Santa Maria, La Nina, La Pinta
-Pope Pius IX (Italian: Pio IX, Pio Nono; born Giovanni Maria Mastai Ferretti;[a] 13 May 1792 – 7 February 1878) was head of the Catholic Church from 1846 to 1878, the longest verified papal reign
+Pope Pius IX (Italian: Pio IX, Pio Nono; born Giovanni Maria Mastai Ferretti;[a] 13 May 1792 – 7 February 1878) was head of the Catholic Church from 1846 to 1878, the longest verified papal reign.....
+In 1875, Pius declared a Holy Year that was celebrated throughout the Catholic world. 
 
 Merry Christmas Shanghai 72 光复强奸
 - https://en.m.wikipedia.org/wiki/Shanghai_massacre#:~:text=The%20Shanghai%20massacre%20of%2012,conservative%20factions%20in%20the%20Kuomintang%20
