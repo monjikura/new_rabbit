@@ -3,6 +3,9 @@ Belachan ( Cadmium ) Research
 ( At Your Own Risk )
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
+Spanish 1482 Paella
+Llotja (Eastern Calatan: [ˈʎɔdʒə], plural llotjes); in Aragonese: loncha; in Spanish: lonja; is a Catalan term for important buildings used for commercial purposes during the Middle Ages and Early Modern Ages.
+
 Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
 
