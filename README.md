@@ -8,6 +8,8 @@ Kerbau 1911 ( Ke Bao (Assent) )
 ? aji-no-momo-toto ??
 https://en.m.wikipedia.org/wiki/Banu_Hanzala ( fitna 1 )
 Ali Baba & 40 thieves
+Buenos Aires ( 1801 - 1925 )
+Basilica of Our Lady of Guadalupe
 
 Spanish 1482 Paella
 Llotja (Eastern Calatan: [ˈʎɔdʒə], plural llotjes); in Aragonese: loncha; in Spanish: lonja; is a Catalan term for important buildings used for commercial purposes during the Middle Ages and Early Modern Ages.
