@@ -37,6 +37,9 @@ Black Umbrella Shanghai 1930s
 dedicated to Pres. Lee Teng Hui
 ( Never Again !! )
 
+https://youtu.be/sjG00kSU3Yc?si=GlEFUrc0g721PWW_
+
+
 
 Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
