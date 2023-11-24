@@ -31,6 +31,10 @@ e. g.
 
 On 18 May 1916 agents of Yuan Shikai assassinated Chen Qimei. Chiang then succeeded Chen as leader of the Chinese Revolutionary Party in Shanghai
 
+Black Umbrella Shanghai 1930s
+dedicated to Pres. Lee Teng Hui
+( Never Again !! )
+
 
 Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
