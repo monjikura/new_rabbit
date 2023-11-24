@@ -51,7 +51,12 @@ dedicated to Pres. Lee Teng Hui
 
 https://youtu.be/sjG00kSU3Yc?si=GlEFUrc0g721PWW_
 
-
+British Malayo 
+( Keeping Up with the Joneses )
+https://en.m.wikipedia.org/wiki/Stanley_Wilson_Jones
+The Malay Dilemma
+Pisang goreng sudah jadi 
+...goreng pisang....
 
 Dr.Kozo Ando ( British Malaya )
 https://en.m.wikipedia.org/wiki/SRI_International
