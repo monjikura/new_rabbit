@@ -27,6 +27,10 @@ Ali Baba & 40 thieves
 Buenos Aires ( 1801 - 1925 )
 Basilica of Our Lady of Guadalupe
 
+Background ::
+On the one hand, wasabi is extremely healthy and contains many vitamins and minerals essential to a healthy diet. On the other hand, when compared to other superfoods like blueberries or kale, the health benefits of wasabi and its nutrient content overall falls a bit short
+( Simpson's BEC Paradox )
+
 There was a main riot of Shanghai Municipal Police in Shanghai Hongkou district in 1918 between the local Chinese police contingent and Japanese contingent, which was triggered by Japanese contingent’s desire to recruit more Japanese police into Shanghai Municipal Police. The tension between two branches finally result into an armed riot in a farm market in 1918, in which a Japanese police was shot dead and many people wounded.
 
 Spanish 1482 Paella
