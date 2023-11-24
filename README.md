@@ -14,6 +14,8 @@ Ayah-kah?....when G-d ask "where are you" to Adam & Eve in the Garden of Eden
 ( Doctrine of the Holy Pig )
 Have you read JOB ??
 
+https://en.m.wikipedia.org/wiki/Ibnu_Sutowo
+
 https://www.singapore-ras.com/
 2023 Salmon Biotech Asia
 fiscal:: Zero Rated Tax & Excise
