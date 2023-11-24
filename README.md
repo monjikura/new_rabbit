@@ -15,6 +15,7 @@ Ayah-kah?....when G-d ask "where are you" to Adam & Eve in the Garden of Eden
 Have you read JOB ??
 
 https://en.m.wikipedia.org/wiki/Ibnu_Sutowo
+https://en.m.wikipedia.org/wiki/Syed_Jaafar_Albar
 
 https://www.singapore-ras.com/
 2023 Salmon Biotech Asia
