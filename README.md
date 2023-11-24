@@ -13,6 +13,7 @@ https://www.singapore-ras.com/
 2023 Salmon Biotech Asia
 fiscal:: Zero Rated Tax & Excise
 vehicle:: Leasing & Conveyancing
+( Crypto-Asset Reporting Framework (CARF) in 2027 )
 
 Kerbau 1911 ( Ke Bao (Assent) )
 ? aji-no-momo-toto ??
