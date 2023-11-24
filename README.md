@@ -6,6 +6,7 @@ In Memoriam ( Bapak Rudi )
 Rudi Schmid (2 May 1922 – 20 October 2007)
 c/o Unit Hepatologi
 ( Sarawak General Hospital )
+phonetic hiragana character ゆ (yu)
 
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
