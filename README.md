@@ -9,6 +9,9 @@ c/o Unit Hepatologi
 
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
+https://www.singapore-ras.com/
+2023 Salmon Biotech Asia
+
 Kerbau 1911 ( Ke Bao (Assent) )
 ? aji-no-momo-toto ??
 https://en.m.wikipedia.org/wiki/Banu_Hanzala ( fitna 1 )
