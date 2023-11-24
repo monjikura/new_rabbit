@@ -2,6 +2,9 @@
 Belachan ( Cadmium ) Research
 ( At Your Own Risk )
 bokumu ye ( Turkish )
+In Memoriam ( Bapak Rudi )
+Rudi Schmid (2 May 1922 – 20 October 2007)
+
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
 Kerbau 1911 ( Ke Bao (Assent) )
