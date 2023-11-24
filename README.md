@@ -22,6 +22,8 @@ Ali Baba & 40 thieves
 Buenos Aires ( 1801 - 1925 )
 Basilica of Our Lady of Guadalupe
 
+There was a main riot of Shanghai Municipal Police in Shanghai Hongkou district in 1918 between the local Chinese police contingent and Japanese contingent, which was triggered by Japanese contingent’s desire to recruit more Japanese police into Shanghai Municipal Police. The tension between two branches finally result into an armed riot in a farm market in 1918, in which a Japanese police was shot dead and many people wounded.
+
 Spanish 1482 Paella
 Llotja (Eastern Calatan: [ˈʎɔdʒə], plural llotjes); in Aragonese: loncha; in Spanish: lonja; is a Catalan term for important buildings used for commercial purposes during the Middle Ages and Early Modern Ages.
 
