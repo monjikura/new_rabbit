@@ -14,6 +14,7 @@ https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 Ayah-kah?....when G-d ask "where are you" to Adam & Eve in the Garden of Eden
 ( Doctrine of the Holy Pig )
 Have you read JOB ??
+( Noah gives birth to Abram )
 
 https://en.m.wikipedia.org/wiki/Ibnu_Sutowo
 https://en.m.wikipedia.org/wiki/Syed_Jaafar_Albar
