@@ -22,6 +22,9 @@ https://en.m.wikipedia.org/wiki/Syed_Jaafar_Albar
 Tun Fat'mah, the Queen who lost
 malacca....1494...
 
+2004 Mak Kaw ::
+A private jet sits on the runway at McCarran International Airport in Las Vegas. For its owner, Paul Phua Wei-seng, the US$48 million plane with the registration number N888XS, may not be as lucky as its number sounds.The 50-year old Malaysian is one of eight people, three from Hong Kong, who are accused of operating an illegal soccer gambling ring in Las Vegas hotel suites that United States prosecutors allege netted billions of Hong Kong dollars during the World Cup.
+
 Alio Olio ( Nov 25th, 2023 )
 Laws of Kashrut ::
 - December 16, 1707
