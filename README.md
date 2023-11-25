@@ -17,6 +17,11 @@ Have you read JOB ??
 https://en.m.wikipedia.org/wiki/Ibnu_Sutowo
 https://en.m.wikipedia.org/wiki/Syed_Jaafar_Albar
 
+Alio Olio ( Nov 25th, 2023 )
+Laws of Kashrut ::
+- December 16, 1707
+On December 16, 1707, scientists recorded the last confirmed eruption of Mount Fuji, Japan's highest point. Fuji is composed of several overlapping volcanoes. The top two are known as “Old Fuji” (Ko Fuji) and “Young Fuji” (Shin Fuji).
+
 https://www.singapore-ras.com/
 2023 Salmon Biotech Asia
 fiscal:: Zero Rated Tax & Excise
