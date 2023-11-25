@@ -18,6 +18,9 @@ Have you read JOB ??
 https://en.m.wikipedia.org/wiki/Ibnu_Sutowo
 https://en.m.wikipedia.org/wiki/Syed_Jaafar_Albar
 
+Tun Fat'mah, the Queen who lost
+malacca....1494...
+
 Alio Olio ( Nov 25th, 2023 )
 Laws of Kashrut ::
 - December 16, 1707
