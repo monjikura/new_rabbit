@@ -9,6 +9,8 @@ c/o Unit Hepatologi
 ( Sarawak General Hospital )
 phonetic hiragana character ゆ (yu)
 
+Toto https://en.m.wikipedia.org/wiki/Betrothed_numbers
+
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
 Ayah-kah?....when G-d ask "where are you" to Adam & Eve in the Garden of Eden
