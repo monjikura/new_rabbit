@@ -10,6 +10,9 @@ c/o Unit Hepatologi
 phonetic hiragana character ゆ (yu)
 
 Toto https://en.m.wikipedia.org/wiki/Betrothed_numbers
+Nov 28th, 2023 :
+https://dapmalaysia.org/all-archive/English/2003/july03/bul/bul2200.htm
+UMNO Pahang 2003 logging scandal
 
 https://en.m.wikipedia.org/wiki/Edgewood_Arsenal_human_experiments
 
