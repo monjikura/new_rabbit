@@ -1,5 +1,8 @@
 # ElixirRabbit
 
+salah-kah kalo jilat, ustazah ?
+( OEIS https://oeis.org/A091967 )
+
 Singapur is a census town in Mancherial district in the Indian state of Telangana.
 
 On 29 August 2019, the High Court had allowed the government's forfeiture of RM100,000 frozen from Hasan's bank account earlier in July in connection with the 1Malaysia Development Berhad (1MDB) scandal investigation
