@@ -3,6 +3,10 @@
 Shah Alam original name is Batu Tiga
 ( Laksa Johore harga sekupang )
 
+that "little Cretin".....
+https://en.m.wikipedia.org/wiki/Ahmed_Resm%C3%AE_Efendi
+UMNO - Singapura
+
 0x000004
 The Presentation of Jesus is an early episode in the life of Jesus Christ, describing his presentation at the Temple in Jerusalem. It is celebrated by many churches 40 days after Christmas on Candlemas
 
