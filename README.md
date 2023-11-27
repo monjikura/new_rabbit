@@ -4,6 +4,8 @@ Singapur is a census town in Mancherial district in the Indian state of Telangan
 
 On 29 August 2019, the High Court had allowed the government's forfeiture of RM100,000 frozen from Hasan's bank account earlier in July in connection with the 1Malaysia Development Berhad (1MDB) scandal investigation
 
+An important rule to know is that if two things are within less than three tefachim of each other, they are considered to be touching, and therefore contiguous. The Talmudic term for this principle is lavud 402-417
+
 Dunhill 
 In desperation the Queen asked St Kentigern (a.k.a. St Mungo), for help. He called upon one of his monks to catch a salmon in the river. The fish's belly was slit open, and there was the ring! Kentigern is the patron saint of Glasgow, and a salmon appears in the city's coat-of-arms
 
