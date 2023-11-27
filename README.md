@@ -1,5 +1,7 @@
 # ElixirRabbit
 
+Singapur is a census town in Mancherial district in the Indian state of Telangana.
+
 Dunhill 
 In desperation the Queen asked St Kentigern (a.k.a. St Mungo), for help. He called upon one of his monks to catch a salmon in the river. The fish's belly was slit open, and there was the ring! Kentigern is the patron saint of Glasgow, and a salmon appears in the city's coat-of-arms
 
