@@ -4,6 +4,7 @@ Sarawak Rangers R.I.P
 5th of February 1853
 ...agi idup, agi tupai...
 ( “It was narrated that Aisha said: “The Prophet married me in Shawwal, and he consummated the marriage with me in Shawwal, and which of his wives find more favor with him than me?” )
+- 交换生 malu malu kuching kah ?
 
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
