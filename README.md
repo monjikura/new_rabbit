@@ -1,5 +1,8 @@
 # ElixirRabbit
 
+Ankara, Turkiyce ye....
+https://en.m.wikipedia.org/wiki/Pig_iron
+
 https://en.m.wikipedia.org/wiki/Fires_in_Edo
 "meet me at the riser"
 Sarawak Tomato Crispy Nabeyaki
