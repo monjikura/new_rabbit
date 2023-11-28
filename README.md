@@ -2,6 +2,7 @@
 
 Sarawak Rangers R.I.P
 5th of February 1853
+...agi idup, agi tupai...
 
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
