@@ -2,6 +2,7 @@
 
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
+擦手女儿不会赌力
 
 https://en.m.wikipedia.org/wiki/Fires_in_Edo
 "meet me at the riser"
