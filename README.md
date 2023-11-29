@@ -1,6 +1,7 @@
 # ElixirRabbit ! מראה יומיות !
 # Nasi Goreng Dendam Kesumat 
   ( nasi kerabu ye )
+https://en.m.wikipedia.org/wiki/Sid_McMath ( Sydney Pi )
 
 Sarawak Rangers R.I.P
 5th of February 1853
