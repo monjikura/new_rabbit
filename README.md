@@ -5,6 +5,8 @@ https://en.m.wikipedia.org/wiki/Sid_McMath ( Sydney Pi )
 # old su'luk arabic
   A khali' was an individual who had been cast out of his tribe, but eventually acquired the connotation of "a rebel who makes a conscious decision to practice evil" - إيزينكا
 
+Dutch Coffee is a coffee brewing method where ice water is dripped over coffee to extract and retain maximum flavour...
+
 Sarawak Rangers R.I.P
 5th of February 1853
 ...agi idup, agi tupai...
