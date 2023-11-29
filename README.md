@@ -9,6 +9,9 @@ Sarawak Rangers R.I.P
 Kanun 754
 merompak wang tunai berjumlah RM754,840.30 milik JPJ Malaysia di Kaunter Unit Akaun dan Hasil, JPJ Wangsa Maju, pada jam 5.30 petang 4 Julai 2001
 https://oeis.org/A067392
+Rule ( 0114 )
+permissive inference, not a mandatory presumption...inter alia
+Section 101 of the Malaysia Evidence Act 1950
 
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
