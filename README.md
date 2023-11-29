@@ -6,6 +6,9 @@ Sarawak Rangers R.I.P
 ( “It was narrated that Aisha said: “The Prophet married me in Shawwal, and he consummated the marriage with me in Shawwal, and which of his wives find more favor with him than me?” )
 - 交换生 malu malu kuching kah ?
 
+Kanun 754
+merompak wang tunai berjumlah RM754,840.30 milik JPJ Malaysia di Kaunter Unit Akaun dan Hasil, JPJ Wangsa Maju, pada jam 5.30 petang 4 Julai 2001
+
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
 擦手女儿不会赌力
