@@ -11,6 +11,7 @@ merompak wang tunai berjumlah RM754,840.30 milik JPJ Malaysia di Kaunter Unit Ak
 https://oeis.org/A067392
 permissive inference, not a mandatory presumption....
 Section 101 of the Malaysia Evidence Act 1950
+( https://youtu.be/UMHKCWU9NeQ?si=XVIWzw9joUVZEWsb ) MYR5.05 sen
 
 Ankara, Turkiyce ye....
 https://en.m.wikipedia.org/wiki/Pig_iron
