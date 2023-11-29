@@ -6,6 +6,9 @@ Sarawak Rangers R.I.P
 ( “It was narrated that Aisha said: “The Prophet married me in Shawwal, and he consummated the marriage with me in Shawwal, and which of his wives find more favor with him than me?” )
 - 交换生 malu malu kuching kah ?
 
+Rule ( 192 datum 377 )
+https://oeis.org/A333974
+
 Defence Minister Datuk Seri Mohamad Hasan however defended the deal in Parliament, explaining that it is aimed at addressing cash flow problems and settling BHB's debt by the end of 2023 to prevent bankruptcy.
 
 On Monday, however Prime Minister Datuk Seri Anwar Ibrahim, speaking at the launch of "Karnival Segalanya Felda Wilayah Mempaga" in Felda Chemomoi, said he has this week, approved financial assistance of RM300 million for BHB and is looking for another RM2 billion to support LTAT from making losses.
