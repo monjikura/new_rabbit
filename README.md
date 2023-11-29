@@ -1,4 +1,6 @@
 # ElixirRabbit ! מראה יומיות !
+# Nasi Goreng Dendam Kesumat 
+  ( nasi kerabu ye )
 
 Sarawak Rangers R.I.P
 5th of February 1853
