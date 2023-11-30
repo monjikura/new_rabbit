@@ -1,6 +1,7 @@
 # ElixirRabbit ! מראה יומיות !
 # Nasi Goreng Dendam Kesumat 
   ( nasi kerabu ye )
+December 2023 - 近畿撮影
 https://en.m.wikipedia.org/wiki/Sid_McMath ( Sydney Pi )
 # old su'luk arabic
   A khali' was an individual who had been cast out of his tribe, but eventually acquired the connotation of "a rebel who makes a conscious decision to practice evil" - إيزينكا
