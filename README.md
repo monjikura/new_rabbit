@@ -19,7 +19,7 @@ Sarawak Rangers R.I.P
 ...agi idup, agi tupai...
 ( “It was narrated that Aisha said: “The Prophet married me in Shawwal, and he consummated the marriage with me in Shawwal, and which of his wives find more favor with him than me?” )
 - 交换生 malu malu kuching kah ?
-The perineum is bounded anteriorly by the pubic arch, laterally, in a posterior direction from the lower branch of the pubis and the ischium, to the ischial tuberosity and the sacrotuberous ligament, and posteriorly ends at the apex of the coccyx
+The perineum is bounded anteriorly by the pubic arch, laterally, in a posterior direction from the lower branch of the pubis and the ischium, to the ischial tuberosity and the sacrotuberous ligament, and posteriorly ends at the apex of the coccyx ( dubbed “nectar of the gods” in ancient India )
 
 Rule ( 192 datum 377 )
 https://oeis.org/A333974
