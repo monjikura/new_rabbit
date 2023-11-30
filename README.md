@@ -18,6 +18,8 @@ Dutch Coffee is a coffee brewing method where ice water is dripped over coffee t
 Opus dei Templars !
 ( house of the "Salt Attic" )
 
+https://en.m.wikipedia.org/wiki/Operation_Flipper
+
 Sarawak Rangers R.I.P
 5th of February 1853
 ...agi idup, agi tupai...
