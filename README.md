@@ -10,6 +10,9 @@ The Straits Times, 25 October 1911
 
 Dutch Coffee is a coffee brewing method where ice water is dripped over coffee to extract and retain maximum flavour...
 
+Opus dei Templars !
+( house of the "Salt Attic" )
+
 Sarawak Rangers R.I.P
 5th of February 1853
 ...agi idup, agi tupai...
