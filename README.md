@@ -1,6 +1,7 @@
 # ElixirRabbit ! מראה יומיות !
 # Nasi Goreng Dendam Kesumat 
   ( nasi kerabu ye )
+  ダラ 塗る
 December 2023 - 近畿撮影
 https://en.m.wikipedia.org/wiki/Sid_McMath ( Sydney Pi )
 Bluff Road (present day Jalan Bukit Aman)
