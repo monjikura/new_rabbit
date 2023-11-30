@@ -1,4 +1,6 @@
 # ElixirRabbit ! מראה יומיות !
+abg sayang abg sayang P121
+- https://oeis.org/A006878
 # Nasi Goreng Dendam Kesumat 
   ( nasi kerabu ye )
   ダラ 塗る
