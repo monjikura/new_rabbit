@@ -8,6 +8,8 @@ December 2023 - 近畿撮影
 https://en.m.wikipedia.org/wiki/Sid_McMath ( Sydney Pi )
 Bluff Road (present day Jalan Bukit Aman)
 The Straits Times, 25 October 1911
+In 1960, Winsemius led the United Nations Expanded Programme for Technical Assistance (EPTA) team to examine Singapore's potential in industrialisation. Singapore had just attained self-government and was facing high unemployment and a growing population.
+
 # old su'luk arabic
   A khali' was an individual who had been cast out of his tribe, but eventually acquired the connotation of "a rebel who makes a conscious decision to practice evil" - إيزينكا
 
