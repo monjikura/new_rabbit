@@ -1,6 +1,8 @@
 # ElixirRabbit ! מראה יומיות !
 abg sayang abg sayang P121
 - https://oeis.org/A006878
+double jeopardy ( adverse )
+Section 108 Evidence Act 1950
 # Nasi Goreng Dendam Kesumat 
   ( nasi kerabu ye )
   ダラ 塗る
