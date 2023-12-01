@@ -1,5 +1,5 @@
 # ElixirRabbit ! מראה יומיות !
-Pro [Bono]
+Pro [Bono] https://oeis.org/A172033
 https://www.klgates.com/
 Manhattan Pie
 Doctrine Ordu Frustration
