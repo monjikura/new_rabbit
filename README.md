@@ -5,6 +5,8 @@ Manhattan Pie
 Doctrine Ordu Frustration
 The theory of imprevision aims at answering the debtor's situation if any unpredictable events that bring prejudice to the balance of services should occur, balance that was considered by the contracting parties upon the conclusion of contract when the agreement was formed...
 
+In The United States of America v Menteri Sumber Manusia Malaysia,[1] the high court judge ruled in favour of the United States (for further details please see “Embassy dismisses employee: exercise of jure imperii or act of jure gestionis?“). However, this decision has now been set aside by the Court of Appeal
+
 # Democratic PP Taiwan
 https://en.m.wikipedia.org/wiki/Treaty_of_Portsmouth
 The Hilton family name originates in the Akershus region (fylke) of Norway and can be traced to the town of Kløfta since the late 18th century.[6][7] The American branch of the family is descended from Augustus Halvorsen Hilton, who migrated from Norway to San Antonio, New Mexico in 1870. In the 1900 United States census, Hilton was listed as a dry goods merchant.[8] Conrad Hilton is the son of the Norwegian emigrant and therefore a first-generation American, he laid the base of the modern Hilton family which currently is based in New Mexico, California and New York.
