@@ -1,6 +1,8 @@
 # ElixirRabbit ! מראה יומיות !
 abg sayang abg sayang P121
 - https://oeis.org/A006878
+- memek sempit oh enak....
+- In March 1924, the Caliphate was abolished, marking the end of Ottoman influence ( 1911 - 1925 )
 double jeopardy ( adverse )
 Section 108 Evidence Act 1950
 # Nasi Goreng Dendam Kesumat 
