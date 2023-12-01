@@ -2,6 +2,8 @@
 Pro [Bono]
 https://www.klgates.com/
 Manhattan Pie
+Doctrine Ordu Frustration
+The theory of imprevision aims at answering the debtor's situation if any unpredictable events that bring prejudice to the balance of services should occur, balance that was considered by the contracting parties upon the conclusion of contract when the agreement was formed...
 
 # Democratic PP Taiwan
 https://en.m.wikipedia.org/wiki/Treaty_of_Portsmouth
