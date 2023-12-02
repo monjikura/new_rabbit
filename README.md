@@ -1,5 +1,6 @@
 # Vagina 3443 Clitoris ( AR )
 https://en.m.wikipedia.org/wiki/Androgen_receptor
+https://oeis.org/A145271
 
 # ElixirRabbit ! מראה יומיות !
 Pro [Bono]  情報 宴会
