@@ -1,5 +1,7 @@
 # ElixirRabbit ! מראה יומיות !
-Pro [Bono] https://oeis.org/A172033
+Pro [Bono] 
+ wheeler motion vs motion to supress
+https://oeis.org/A172033
 https://www.klgates.com/
 Manhattan Pie
 Doctrine Ordu Frustration
