@@ -40,6 +40,10 @@ Bluff Road (present day Jalan Bukit Aman)
 The Straits Times, 25 October 1911
 In 1960, Winsemius led the United Nations Expanded Programme for Technical Assistance (EPTA) team to examine Singapore's potential in industrialisation. Singapore had just attained self-government and was facing high unemployment and a growing population.
 
+Lun Bawang ::
+
+The project, along with its pharma partner Medicago, reached a major milestone in 2012, when a ‘live-fire’ test using tobacco-based protein production (tobacco being favoured for its ready availability and rapid growth rate) pumped out 10 million doses of an H1N1 vaccine candidate in just one month, a major improvement over previous methods. Blue Angel’s programme manager Dr. John Julias gives an update on where Blue Angel is today, and how it achieved such an astonishing rate of production.
+
 # old su'luk arabic
   A khali' was an individual who had been cast out of his tribe, but eventually acquired the connotation of "a rebel who makes a conscious decision to practice evil" - إيزينكا
 
