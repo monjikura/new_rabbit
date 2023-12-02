@@ -5,6 +5,8 @@ https://oeis.org/A172033
 https://www.klgates.com/
 
 https://www.nlb.gov.sg/main/article-detail?cmsuuid=3b958813-e22e-4bd4-98e3-fd901dfd8c3c
+( call home Mrs.Robinson,Esq )
+https://oeis.org/A094380
 
 Manhattan Pie
 Doctrine Ordu Frustration
