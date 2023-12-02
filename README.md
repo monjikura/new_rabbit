@@ -12,6 +12,9 @@ Manhattan Pie
 Doctrine Ordu Frustration
 The theory of imprevision aims at answering the debtor's situation if any unpredictable events that bring prejudice to the balance of services should occur, balance that was considered by the contracting parties upon the conclusion of contract when the agreement was formed...
 
+Chicken or the Egg first...
+https://www.politico.com/news/magazine/2022/03/30/impeach-supreme-court-justice-clarence-thomas-00021480
+
 In The United States of America v Menteri Sumber Manusia Malaysia,[1] the high court judge ruled in favour of the United States (for further details please see “Embassy dismisses employee: exercise of jure imperii or act of jure gestionis?“). However, this decision has now been set aside by the Court of Appeal
 
 # Democratic PP Taiwan
