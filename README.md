@@ -10,6 +10,10 @@ In The United States of America v Menteri Sumber Manusia Malaysia,[1] the high c
 # Democratic PP Taiwan
 https://en.m.wikipedia.org/wiki/Treaty_of_Portsmouth
 The Hilton family name originates in the Akershus region (fylke) of Norway and can be traced to the town of Kløfta since the late 18th century.[6][7] The American branch of the family is descended from Augustus Halvorsen Hilton, who migrated from Norway to San Antonio, New Mexico in 1870. In the 1900 United States census, Hilton was listed as a dry goods merchant.[8] Conrad Hilton is the son of the Norwegian emigrant and therefore a first-generation American, he laid the base of the modern Hilton family which currently is based in New Mexico, California and New York.
+
+A 6-year old John Archibald ‘Archie’ Russell arrived in Kuala Lumpur, Malaya with his father and 4 brothers. Following the death of his mother in a tragic carriage accident, he was sent back to England for his early years of education. Upon returning to Malaya, Archie began a career in the mining industry. He also became fluent in 5 Chinese dialects and Bahasa Melayu and made a name for himself building a railway station and starting businesses in many areas including a rubber company and colliery.
+December 2nd, 2023
+
 abg sayang abg sayang P121
 https://en.m.wikipedia.org/wiki/Kakawin_Ramayana
 - https://oeis.org/A006878
