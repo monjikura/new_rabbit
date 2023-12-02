@@ -3,6 +3,9 @@ Pro [Bono]
  wheeler motion vs motion to supress
 https://oeis.org/A172033
 https://www.klgates.com/
+
+https://www.nlb.gov.sg/main/article-detail?cmsuuid=3b958813-e22e-4bd4-98e3-fd901dfd8c3c
+
 Manhattan Pie
 Doctrine Ordu Frustration
 The theory of imprevision aims at answering the debtor's situation if any unpredictable events that bring prejudice to the balance of services should occur, balance that was considered by the contracting parties upon the conclusion of contract when the agreement was formed...
