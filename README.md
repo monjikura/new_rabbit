@@ -1,5 +1,5 @@
 # ElixirRabbit ! מראה יומיות !
-Pro [Bono] 
+Pro [Bono]  情報 宴会
  wheeler motion vs motion to supress
 https://oeis.org/A172033
 https://www.klgates.com/
