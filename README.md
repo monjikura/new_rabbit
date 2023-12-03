@@ -2,6 +2,10 @@
 https://en.m.wikipedia.org/wiki/Androgen_receptor
 https://oeis.org/A145271
 
+Bad Girls go to Heaven....
+Labs across the world already produce man-made diamonds, and their process is much less messy than Frost's. However, the discovery that carbon from peanut butter can be turned into diamonds could have other uses. Many industries, like automotive and mining, use diamonds for cutting or polishing other materials.....
+TQVM US Navy Medical Corp....
+
 # ElixirRabbit ! מראה יומיות !
 Pro [Bono]  情報 宴会
  wheeler motion vs motion to supress
