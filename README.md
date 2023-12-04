@@ -7,6 +7,7 @@ Labs across the world already produce man-made diamonds, and their process is mu
 TQVM US Navy Medical Corp....
 
 https://en.m.wikipedia.org/wiki/Bremsstrahlung
+https://en.m.wikipedia.org/wiki/1953_Iranian_coup_d%27%C3%A9tat
 
 # ElixirRabbit ! מראה יומיות !
 Pro [Bono]  情報 宴会
