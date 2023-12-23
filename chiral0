@@ -1,0 +1,9 @@
+# Riordan ( Einstein Keppler triple Chiral )
+
+ puts !{} != 130
+
+ # this problem can't be really solved using
+ # recursion - assuming that you only can pass
+ # down the heuristics...you have to somehow
+ # know which indexes have been tripled; and
+ # which not....
